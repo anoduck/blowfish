@@ -1,3 +1,10 @@
+# Code of Conducts are nothing more than an attempts suppress freedom of thought and speech
+
+I do not agree to any statement that limit's my freedom of expression, as it is a contract 
+that is unenforceable by law, and exists for the sole purpose of limiting diversity.
+
+-----
+
 # Contributor Covenant Code of Conduct
 
 ## Our Pledge
